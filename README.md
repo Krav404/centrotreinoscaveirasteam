@@ -1,2 +1,2 @@
-No Centro de treinos Caveiras Team, ajudamos os alunos a abterem ferramentas para a sua defesa e a dos seus.
-Treinamos a mente e o corpo para reagires em tua defesa e na dos teus mais cchegados.
+Caveiras Team não é apenas um Centro de Treinos — é onde mente e corpo se tornam armas de defesa. Aqui, os alunos desenvolvem ferramentas para proteger a si mesmos e aos que mais amam. Treinamos para reagir com força, foco e coragem. 💀🔥
+Defesa Pessoal. Disciplina. Família.
